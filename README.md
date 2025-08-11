@@ -22,4 +22,4 @@ Atualmente, estou aprendendo e me aprofundando em [linguagens ou frameworks que 
 ## 📫 Como Entrar em Contato
 
 - E-mail: [larissadias0907@gamil.com)
-- LinkedIn: [larissadias] 
+- LinkedIn: [https://www.linkedin.com/in/larissa-dias-b93814378?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B0XVyDdHeT%2B65l9k6s6sfRQ%3D%3D] 
