@@ -1,6 +1,6 @@
 # Larii
 Meu repositório pessoal
-# Olá, sou [Seu Nome] 👋
+# Olá, sou [Larissa Dias] 👋
 
 Sou estudante de **Análise e Desenvolvimento de Sistemas** pela **Universidade Cruzeiro do Sul** e apaixonada por tecnologia e programação! 🚀
 
